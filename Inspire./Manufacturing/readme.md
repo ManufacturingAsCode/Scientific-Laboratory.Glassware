@@ -1,3 +1,4 @@
 - [Scientific Glass Blower Makes Beer Glasses | WIRED](https://youtu.be/3cxt8i0PYyY)
 - [How Laboratory Glassware is Blown in the UK!](https://youtu.be/_fI3gpO5hW4)
-- 
+- [How Heat-Resistant (Borosilicate) Glassware Is Manufactured](https://youtu.be/PWdvQIBAzhk)
+- [
